@@ -35,11 +35,17 @@ The reason i'm still the same is because i am not DISCIPLINED, HARD WORKING, CON
 
 ## I PROMISE THE FUTURE ME that,
 
-👉 I shall do this to gain **DISCIPLINE**
+👉 I shall do this to gain **DISCIPLINE** 
+
 👉 I shall do this to become **WISER**
+
 👉 I shall do this to become **RICH**
+
 👉 I shall do this to stay **HUMBLE**
+
 👉 I shall do this for a **BETTER FUTURE**
+
+👉 I shall do this for the **FUTURE ME**
 
 ### Remember  
 - **Fortune favours those who Work Hard**
