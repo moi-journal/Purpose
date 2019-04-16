@@ -54,8 +54,13 @@ The reason i'm still the same is because i am not DISCIPLINED, HARD WORKING, CON
 👉 I shall do this for the **FUTURE ME**
 
 ### Remember  
-- **Fortune favours those who Work Hard**
-- **Hard Work definitely pays off**
-- **The best preparation for tomorrow is doing your best today.**
-- **With hard work and effort, you can achieve anything**
-- **Success is all about consistency. Consistent + Hard Work leads to Success. Greatness will come for those who are CONSISTENT**
+
+✔️ **Fortune favours those who Work Hard**
+
+✔️ **Hard Work definitely pays off**
+
+✔️ **The best preparation for tomorrow is doing your best today.**
+
+✔️ **With hard work and effort, you can achieve anything**
+
+✔️ **Success is all about consistency. Consistent + Hard Work leads to Success. Greatness will come for those who are CONSISTENT**
