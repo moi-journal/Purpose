@@ -31,7 +31,7 @@ The reason i'm still the same is because i am not DISCIPLINED, HARD WORKING, CON
 
 #### What should i do ? 😭
 
-- Follow the TimeTable and Work according to the TodoList and the 5YP ( Believe in yourself !!! )
+- Follow the [TimeTable](https://github.com/moi-journal/TimeTable/blob/master/README.md) and Work according to the TodoList and the 5YP ( Believe in yourself !!! )
 
 ## My Objective
 
