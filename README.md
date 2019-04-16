@@ -31,7 +31,13 @@ The reason i'm still the same is because i am not DISCIPLINED, HARD WORKING, CON
 
 #### What should i do ? 😭
 
-- Follow the TimeTable and Work according to the TodoList and the 5YP 
+- Follow the TimeTable and Work according to the TodoList and the 5YP ( Believe in yourself !!! )
+
+## My Objective
+
+- My objective is to be among the best in what i do !!! 👨🏻‍💻 
+
+- My mission in life is not merely to __survive__, but to __thrive__; and to do so with some __passion__, some __compassion__, some __humor__, and some __style__.
 
 ## I PROMISE THE FUTURE ME that,
 
@@ -50,3 +56,6 @@ The reason i'm still the same is because i am not DISCIPLINED, HARD WORKING, CON
 ### Remember  
 - **Fortune favours those who Work Hard**
 - **Hard Work definitely pays off**
+- **The best preparation for tomorrow is doing your best today.**
+- **With hard work and effort, you can achieve anything**
+- **Success is all about consistency. Consistent + Hard Work leads to Success. Greatness will come for those who are CONSISTENT**
